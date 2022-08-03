@@ -12,10 +12,6 @@ You can purchase this token generator from Benz#7274
 
 
 
-https://user-images.githubusercontent.com/53555245/182259714-186bc818-625a-489e-b328-167cfa63be42.mp4
-
-
-
 
 
 
